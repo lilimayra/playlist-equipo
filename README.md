@@ -1,1 +1,1 @@
-# playlist-equipo
+# playlist-equipazo
